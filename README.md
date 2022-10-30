@@ -1,2 +1,2 @@
 # ouroboruo.github.io
-My page, bitches
+My page
